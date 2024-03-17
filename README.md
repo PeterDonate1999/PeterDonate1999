@@ -1,0 +1,7 @@
+- 👋 Hi, I’m PeterDonate
+- 👀 I’m interested in 
+- 🌱 I’m currently learning Data Analyst and Editing Video
+- 💞️ I’m looking to collaborate on Youtube, Github...
+- 📫 You can contact me through gmail:team.peterdonate@gmail.com
+- 😄 Pronouns: Ngậu :3
+- ⚡ Fun fact: I love listening and asking questions to older people about their lives. Because in my opinion, they are very valuable portable books.
