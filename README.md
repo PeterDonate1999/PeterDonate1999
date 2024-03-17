@@ -1,5 +1,5 @@
 - 👋 Hi, I’m PeterDonate
-- 👀 I’m interested in 
+- 👀 I’m interested in economics, politics, society and technology
 - 🌱 I’m currently learning Data Analyst and Editing Video
 - 💞️ I’m looking to collaborate on Youtube, Github...
 - 📫 You can contact me through gmail:team.peterdonate@gmail.com
